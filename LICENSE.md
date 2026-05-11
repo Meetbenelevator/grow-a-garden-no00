@@ -1,4 +1,4 @@
-#  
+#  top grow a garden Scripts is the best grow a garden Script, featuring aimbot and auto-collect. Safe and powerful for all your needs.
 
 
 
